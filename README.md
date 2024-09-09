@@ -1,0 +1,1 @@
+# MAGIX-Samplitude-Pro-X8-Suite
